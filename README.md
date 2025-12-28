@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=party-killers&color=FFAD07&label=⠀⠀⠀wait for me⠀⠀✦⠀⠀⠀⠀)
+![](https://komarev.com/ghpvc/?username=party-killers&color=FFAD07&label=⠀⠀⠀wait for me⠀⠀★⠀⠀⠀⠀)
 ⠀\
 ⠀\
 ⠀\
@@ -9,7 +9,7 @@
 ⠀\
 ⠀\
   <sub>$\text{\color{#FFFFFF}Andrew (preferred) or Mike. He/They}$\
-  $\text{\color{#FFFFFFF}Fictionkin 𓈒 Unlabeled. 15yo.}$
+  $\text{\color{#FFFFFFF}Fictionkin 𓈒 Unlabeled.⠀Fifteen}$
 
   <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
   $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
