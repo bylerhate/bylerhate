@@ -1,19 +1,19 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=party-killers&color=627B88&label=⠀⠀⠀serendipitous⠀⠀★⠀⠀⠀⠀)
+![](https://komarev.com/ghpvc/?username=party-killers&color=5DAFC4&label=⠀⠀⠀wiseheart⠀⠀★⠀⠀⠀⠀)
 ⠀\
 ⠀\
 ⠀\
-![](https://files.catbox.moe/rz8ooc.png)
+![](https://files.catbox.moe/egcq3a.png)
 ⠀\
 ⠀\
 ⠀\
-  <sub>$\text{\color{#FFFFFF}Andrew (preferred) or Mike. He/They}$\
-  $\text{\color{#FFFFFFF}Fictionkin 𓈒⠀Unlabeled.⠀Fifteen}$
+  <sub>$\text{\color{#BAD6BE}Andrew⠀⠀╱⠀⠀Mike}$\
+  $\text{\color{#9BD0C0}Fifteen⠀𓈒⠀⠀Unlabeled}$
 
-  <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit with me whenever. You don't have to ask.}$\
-  $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
+  <sub>$\text{\color{#96C3C6}C+H is always encouraged.}$\
+  $\text{\color{#699ABB}Whispers also preferred as I'm mostly offtab}$\
 ⠀\
-  [rentry](https://rentry.co/bylerhate)⠀ $\text{\color{#FFFFFF}✦}$⠀ [prns.cc](https://pronouns.cc/@starcourt)\
-   [atabook](https://andreil.atabook.org/)⠀ 
+  [rentry](https://rentry.co/bylerhate)⠀⠀ $\text{\color{#93BBB6}✦}$⠀⠀ [pronouns.cc](https://pronouns.cc/@starcourt)\
+  sign⠀ [atabook](https://andreil.atabook.org/)⠀ $\text{\color{#48B0B4}!}$
 </div>
